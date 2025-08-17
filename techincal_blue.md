@@ -18,7 +18,11 @@ but you don't even know
 
 ---
 
+dream scenario:
 
+3d printed crystal filled characters
+
+video fx added at night shot videos, neon or futuristic fx
 
 lyrics:
 
