@@ -1,6 +1,6 @@
 music industries are for "talented" people.
 
-i have been occasionally creating some pieces of music.
+i have been occasionally creating some pieces of music. those music could be improved if get documented here and discussed further with ai.
 
 most of the time i just dream about the music, with clear melodies and tones ringing in my head.
 
