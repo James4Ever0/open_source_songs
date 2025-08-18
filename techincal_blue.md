@@ -26,3 +26,15 @@ video fx added at night shot videos, neon or futuristic fx
 
 lyrics:
 
+
+---
+
+a similar song, in German, with guita
+
+search with humming
+
+tone:
+
+speed:
+
+
